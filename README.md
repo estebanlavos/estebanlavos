@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @estebanlavos
+- 👋 Hi, I’m @estebanlavos.
 I also go by the name Escobar Lavos.
-Do check out my socials sometime!
+My favourite things to do when im bored is listen to music, read and browse through social media.
